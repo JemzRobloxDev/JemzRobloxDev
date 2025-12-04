@@ -31,6 +31,7 @@ Always improving, always building.
 ### 📬 Contact
 - Roblox: **Jemz | James631playz**
 - Discord: **jaaamez_**
+- Email: **jemzrobloxdev@gmail.com**
 
 ---
 
